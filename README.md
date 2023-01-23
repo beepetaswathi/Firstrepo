@@ -1,2 +1,1 @@
-Swathi Beepeta <br/>
-I love pets.
+iam studying in northwest
